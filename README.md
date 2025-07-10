@@ -10,4 +10,4 @@
 
 这些平台专注于久久久久99精品成人片欧美资源，涵盖日韩、欧美与国产热门影片，种类丰富、分类清晰，更新迅速。视频页面提供详细信息，如影片长度、分辨率和演员阵容，支持高清播放，系统会根据网络状况自动优化画质，带来流畅观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chieu20250710/chieu8 ）</span>
